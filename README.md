@@ -5,4 +5,6 @@
 3. cultivate your skill.
 4. make it come true.
 5. remember the lessons.
+6. ends.
+
 
